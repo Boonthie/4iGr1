@@ -5,3 +5,4 @@
 ćwiczenia powtórkowe na lekcji :)
 Ja Morant pozdro
 
+Kuba < Kupa gówna
